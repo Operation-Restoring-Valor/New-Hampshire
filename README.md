@@ -1,7 +1,7 @@
 Operation Restoring Valor: The Programmed Response in New Hampshire
 ===================================================================
 
-**The Military's Choice, Not the Individual's: A Legal Defense for Veterans**
+**The Military's Belief, Not the Individual's: A Legal Defense for Veterans**
 
 **By Dr. Correo Hofstad - USAF** *MDiv, JD, JSD* *Founder, Operation Restoring Valor*
 
